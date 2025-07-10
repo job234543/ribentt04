@@ -15,4 +15,4 @@
 隐私保护是平台的重点。通过使用HTTPS加密技术，平台确保用户的个人信息和观看记录的安全，防止隐私泄露。同时，平台会避免过多的广告干扰，提供更加流畅的观看体验。  
 总体来说，国产午夜成人精品影片提供了高清播放、丰富分类、免注册观看以及隐私保护等多种优势，成为了现代用户观看成人影片的理想选择。无论是从影片的内容，还是用户的观看体验，平台都力求做到最好。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/job234543/ribentt04 )</span>
